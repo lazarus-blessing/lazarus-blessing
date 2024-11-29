@@ -2,7 +2,7 @@
 - 👀 I’m interested in CAD Designs
 - 🌱 I’m currently learning Matlab
 - 💞️ I’m looking to collaborate on a research project on Carbon Capture 
-- 📫 How to reach me ... linkedle 
+- 📫 How to reach me ... linkedln
 - 😄 Pronouns: She
 - ⚡ Fun fact: ... I am not a basic individual and calling me anything else will be an insult to my years of perfecting my weird self
 
